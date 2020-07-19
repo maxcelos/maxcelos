@@ -13,3 +13,4 @@ Available for remote and in local jobs in any country. Experience on manage deve
 
 No degree, but considerable academic experience, absorbing good background to put in practice in real world.
 
+Checkout for more in: https://maxcelos.github.io or https://maxcelos.dev
